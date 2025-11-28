@@ -12,7 +12,7 @@ Início da Leitura: 26.11.2025
 -  Os correligionários da AIB estendiam  o braço direito, mão espalmada e se saudavam exclamando "Anauê". Eles se baseavam na tríade: Deus, Pátria e Família. Plínio Salgado foi quem criou a AIB. Plínio tinha como inspirador Benito Mussolini.
 
 
-
+Alterando.
 ## Palavras Novas
 - Compêndio - resumo
 - Ribombante - produz estrondo
