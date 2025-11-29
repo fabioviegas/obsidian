@@ -11,6 +11,11 @@ Início da Leitura: 26.11.2025
 	- Partido Comunista do Brasil - Comunismo
 -  Os correligionários da AIB estendiam  o braço direito, mão espalmada e se saudavam exclamando "Anauê". Eles se baseavam na tríade: Deus, Pátria e Família. Plínio Salgado foi quem criou a AIB. Plínio tinha como inspirador Benito Mussolini.
 
+29.11.2025 Tempo: 45min
+	- 18 do Forte - levante militar de tenentes no RJ. Só dois sobreviveram: Siqueira Campos e Eduardo Gomes.
+	- Antissemita - ódio, preconceito contra os judeus.
+	- ghost-writers
+	-
 
 Alterando.
 ## Palavras Novas
@@ -18,3 +23,5 @@ Alterando.
 - Ribombante - produz estrondo
 - Aviltar - humilhar
 - pusilânime - covarde, medroso
+- Jactar - ostentar um orgulhe excessivo de suas próprias qualidades
+- 
