@@ -15,13 +15,16 @@ Início da Leitura: 26.11.2025
 	- 18 do Forte - levante militar de tenentes no RJ. Só dois sobreviveram: Siqueira Campos e Eduardo Gomes.
 	- Antissemita - ódio, preconceito contra os judeus.
 	- ghost-writers
-	-
 
-Alterando.
+30.11.2025 - 45min
+A ANL veio para contrapor a AIB.
+
+- Coluna Prestes - marcha militar (25 mil km),  incluiu 14 estados brasileiros, inclusive o RS (Santo Ângelo, Missões). Em oposição ao governo oligárquico da república velha. Luís Carlos Prestes era capitão do exército 
+-  Carlos Lacerda era a voz da ANL, uma vez que Prestes estava exilado em Moscou nessa época.
 ## Palavras Novas
 - Compêndio - resumo
 - Ribombante - produz estrondo
 - Aviltar - humilhar
 - pusilânime - covarde, medroso
 - Jactar - ostentar um orgulhe excessivo de suas próprias qualidades
-- 
+- Uxoricídio - licença dada ao homem para matar a mulher em caso de adultério ou mera suspeita.
