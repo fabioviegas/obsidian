@@ -16,15 +16,44 @@ Início da Leitura: 26.11.2025
 	- Antissemita - ódio, preconceito contra os judeus.
 	- ghost-writers
 
-30.11.2025 - 45min
+30.11.2025 - Tempo: 45min
 A ANL veio para contrapor a AIB.
 
-- Coluna Prestes - marcha militar (25 mil km),  incluiu 14 estados brasileiros, inclusive o RS (Santo Ângelo, Missões). Em oposição ao governo oligárquico da república velha. Luís Carlos Prestes era capitão do exército 
+- Coluna Prestes - marcha militar (25 mil km),  incluiu 14 estados brasileiros, inclusive o RS (Santo Ângelo, Missões). Em oposição ao governo oligárquico da república velha. Luís Carlos Prestes (Gaúcho) era capitão do exército 
 -  Carlos Lacerda era a voz da ANL, uma vez que Prestes estava exilado em Moscou nessa época.
+- 
+01.12.2025 Tempo: 30min
+- Sovietes eram os Conselhos de Operários, Camponeses, Soldados e Marinheiros russos.
+- Latifundiário - proprietário de uma grande extensão de terra (um latifúndio)
+
+02.12.2025 Tempo: 30min
+- Mao Tse-tung, Ho Chi Minh, Dolores Ibárruri 
+
+03.12.2025 - 30min
+
+04.12.2025 - 30min
+- Foi Vicente Rao, Ministro da Justiça de Vargas, que criou o DOPS (Departamento de Ordem Pública e Social)
+- Altivo - dotado de brio, dignidade
+06.12.2025 - 20min
+- o hidenburg (substituto do zeppelin) voou do sul da Alemanha até o rio de janeiro, em voo direto. Tanque de hidrogênio. Tinha lounge com piano e restaurantes de luxo.
+O trajeto Frankfurt-Rio, a 100kmh, era feito em 3 dias.
+- Princesa Leopoldina da Áustria, noiva de Dom Pedro I
+
+07.12.2025 - 30min
+- O Brasil pagava com café os aviões e navios italianos que comprava.
+- 
+
 ## Palavras Novas
 - Compêndio - resumo
 - Ribombante - produz estrondo
 - Aviltar - humilhar
 - pusilânime - covarde, medroso
-- Jactar - ostentar um orgulhe excessivo de suas próprias qualidades
+-   - ostentar um orgulho  excessivo de suas próprias qualidades
 - Uxoricídio - licença dada ao homem para matar a mulher em caso de adultério ou mera suspeita.
+- Recrudescer - mais intenso, aumentar
+- Descerrar -  abrir o que está fechado
+- Sublevação - revolta
+- Insurreto - indivíduo que se revolta 
+- tisnar
+- próceres
+- Jactar - gabar-se, vangloriar-se
