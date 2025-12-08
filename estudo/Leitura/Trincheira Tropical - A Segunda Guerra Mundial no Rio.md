@@ -41,7 +41,12 @@ O trajeto Frankfurt-Rio, a 100kmh, era feito em 3 dias.
 
 07.12.2025 - 30min
 - O Brasil pagava com café os aviões e navios italianos que comprava.
-- 
+
+08.12.2025 - 45min
+- Flores da Cunha foi Governador no RS.
+- Plano Cohen, documento forjando por militares, com a intenção de instaurar a ditadura do Estado Novo, em novembro de 1937. No dia 10.11.1937, Getúlio leu na hora do brasil a nova constituição. fechamento do congresso, intervenção nos estados, censura na imprensa e etc. Foi o 18 Brumário do Getúlio.
+	- 18 Brumário - nos dias 9, 10 de novembro de 1799, Napoleão, sustentado pelo exército, sucedera a si próprio da França.
+- 27.11.1937 ordenou e participou da queima, em praça pública, das bandeiras dos estados.
 
 ## Palavras Novas
 - Compêndio - resumo
@@ -57,3 +62,5 @@ O trajeto Frankfurt-Rio, a 100kmh, era feito em 3 dias.
 - tisnar
 - próceres
 - Jactar - gabar-se, vangloriar-se
+- demiurgo
+- 
