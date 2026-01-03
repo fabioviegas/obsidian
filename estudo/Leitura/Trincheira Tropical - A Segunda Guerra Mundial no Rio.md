@@ -48,6 +48,19 @@ O trajeto Frankfurt-Rio, a 100kmh, era feito em 3 dias.
 	- 18 Brumário - nos dias 9, 10 de novembro de 1799, Napoleão, sustentado pelo exército, sucedera a si próprio da França.
 - 27.11.1937 ordenou e participou da queima, em praça pública, das bandeiras dos estados.
 
+09.12.2025 - 40min
+11.12.2025 - 30min
+15.12.2025 - 40min
+16.12.2025 - 30min
+19.12.2025 - 30min
+	- Operação Barbarossa, a invsasão da URSS pela Alemanha, quebrando o pacto de não agressão que durara 1 ano e 10 meses.
+	- Getúlio entrou no Catete em 3/11/1930
+02.01.2026
+	- Guerra Civil Espanhola
+	- Guerra do Paraguai
+	- Canudos
+	- 
+
 ## Palavras Novas
 - Compêndio - resumo
 - Ribombante - produz estrondo
@@ -63,4 +76,11 @@ O trajeto Frankfurt-Rio, a 100kmh, era feito em 3 dias.
 - próceres
 - Jactar - gabar-se, vangloriar-se
 - demiurgo
+- incoercível
+- Silente
+-  matinê
+-  Labregos
+- Ferrabrases
+- Iniquidade
+- Panegíricos
 - 

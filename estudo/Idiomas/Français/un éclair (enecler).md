@@ -1,0 +1,12 @@
+- Croissant (kroassan)
+- Bonjour Madame, je voudrais un café. (Bonjor, Mmdâm, jô vudré ãh káfii)
+- Oui, ãh t
+- un thé et un café. (ãh T e ãh káfii)
+- un café et un éclair
+- Oui, un éclair, s' il vous plaît.
+- Oui je voudrais un café et un croissant
+- Parfait (Párfé)
+- Au revoir (o rrevoar)
+- un thé ou un café? (ãh T u ãh káfii)
+- Bonjour Monsieur, je voudrais un café. (Bonjur Mmsiâr, jô vudré ãh T)
+- Non (no)
